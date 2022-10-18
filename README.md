@@ -4,7 +4,7 @@
 - 💞️ I’m love to play sudoku
 - 📫 you can get in touch with me through 
 Gmail - dolikemathewalex@gmail.com
-Instagram - supermathew213
+Instagram - supermathew__
 
 
 <!---
