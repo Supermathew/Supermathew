@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Supermathew
-- 👀 I’m interested in Devops
+- 👀 I’m interested in Developnment
 - 🌱 I’m currently learning java and devops tools
 - 💞️ I’m love to play sudoku
 - 📫 you can get in touch with me through 
